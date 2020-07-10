@@ -1,12 +1,12 @@
 [GeorgiaSEA Projects](../../../app/?partners=sea)
-# Free Clean Energy
+# Freedom Energy Tech
 
-Free Clean Energy is recognized for understanding the environmental, social, and economic drivers behind renewable energy.  That’s why we offer both services and products that will continue to meet the growing demand and need for enterprise-wide sustainable practices.  We have helped our clients achieve a vast range of goals in areas such as material waste processing and waste to renewable fuels. 
+Freedom Energy Tech is recognized for understanding the environmental, social, and economic drivers behind renewable energy.  That’s why we offer both services and products that will continue to meet the growing demand and need for enterprise-wide sustainable practices.  We have helped our clients achieve a vast range of goals in areas such as material waste processing and waste to renewable fuels. 
 
 
 ### 100% Project Financing
 
-Free Clean Energy partners with multi-national groups to combine investment funding for our sustainable infrastructure projects.  Complete project financing does not require any funding from the municipality or host industry. We eliminate all technical, financial and political risk.  
+Freedom Energy Tech partners with multi-national groups to combine investment funding for our sustainable infrastructure projects.  Complete project financing does not require any funding from the municipality or host industry. We eliminate all technical, financial and political risk.  
 
 ### Project Management
 
@@ -26,5 +26,5 @@ The price of energy is determined by the cost of fuel. Energy created from fossi
 
 ### Project Development
 
-Free Clean Energy offers project flexibility.  Developing your project to maximize economic and environmental benefits.  Project structure options include build, own and operate to complete project financing.  Our experience and expertise will optimize your projects success.
+Freedom Energy Tech offers project flexibility.  Developing your project to maximize economic and environmental benefits.  Project structure options include build, own and operate to complete project financing.  Our experience and expertise will optimize your projects success.
 
